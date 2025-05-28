@@ -5,7 +5,6 @@
   <a href="mailto:rashmitupe2479@gmail.com">📧 rashmitupe2479@gmail.com</a> • 
   <a href="https://www.linkedin.com/in/rashruby789" target="_blank">🔗 LinkedIn</a> 
 </p>
-
 ---
 
 ### 🧾 About Me
